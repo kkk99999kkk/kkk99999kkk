@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kkk99999kkk
 - 👀 I’m interested in web3,crypto
 - 🌱 I’m currently learning web3,blockchains,trading
-- 💞️ I’m looking to collaborate on web3,blockchains,trading
+- 💞️ I’m looking to collaborate on web3,blockchains and trading communities,companies
 - 📫 How to reach me kzh1699@gmail.com , Twitter @ k99999kkkk  , Telegram @kkk99999kkkk
 
 <!---
